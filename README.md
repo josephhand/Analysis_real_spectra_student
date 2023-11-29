@@ -1,1 +1,1 @@
-# Analysis_real_spectra_student
+Student name: Joseph Hand
